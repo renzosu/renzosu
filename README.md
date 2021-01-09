@@ -15,5 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-How to reach me: r.su@alumni.ubc.ca
+Here's how to reach me: r.su@alumni.ubc.ca
 
